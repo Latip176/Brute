@@ -22,5 +22,5 @@ Sayang Tidak Bertanggung Jawab Atas Apa Yang Anda Alamin
 Karena Memakai Script / Tools Ini Saya Hanya Pembuat / Programer
 ```
 # Join Grup Saya
-<a href="https://chat.whatsapp.com/Fbrc7eRyv5kI3mMIqBnSVr">Join</a>
+<a href="https://chat.whatsapp.com/Fbrc7eRyv5kI3mMIqBnSVr">Klik Text Ini Untuk Join Grup WhatsApp</a>
 # Latip Ganteng :v
